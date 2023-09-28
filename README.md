@@ -16,7 +16,7 @@
 
 - 📫 How to reach me <a href="mailto: jiVat1991@gmail.com" target="_blank">-->📧<--</a>
 
-- 📄 Know about my experiences <a href="https://drive.google.com/file/d/19uN9TpTCIPlhQOM3fSfCSb22sV-7jcu_/view?usp=sharing">-->🐱‍👤<--</a>
+- 📄 Know about my experiences <a href="https://drive.google.com/file/d/14Ejw7G6ujoageDGYsRQKl5HpFFcNJHAS/view?usp=sharing">-->🐱‍👤<--</a>
 
 - ⚡ Fun fact **ChatGPT is the best programming language 😜**
 
